@@ -1,0 +1,2 @@
+What parenting pattern did you inherit — and is it still running your home?
+History, developmental psychology, and ancient wisdom all document the same truth: the instincts you bring to parenting right now did not start with you. This five-question assessment identifies your inherited pattern, traces where it came from, and shows you exactly what the research says about what it does to the children in your home.
